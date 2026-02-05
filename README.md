@@ -1,0 +1,1 @@
+https://raw.githubusercontent.com/odmookouichi-hash/Naxlo-core-fight.html-s-images/refs/heads/main/Naxlo-core%20fight_%E8%87%AA%E8%A3%BD%E9%81%8A%E6%88%B2%E7%A8%8B%E5%BC%8F%E7%A2%BC%E8%8D%89%E7%A8%BF(2026%3A02%3A04)%E6%8B%B7%E8%B2%9D.html
